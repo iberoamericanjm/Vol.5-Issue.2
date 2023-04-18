@@ -16,3 +16,5 @@ P, Gupta S, Hamid R, Ghosh S. Maxillary sinus mucocele in a 20-year-old male: a 
 Chehad AS, Boutrid N, Khouidmi H, Rahmoune H. Cutaneous leishmaniasis in an albino child: a peculiar presentation. Iberoam J Med. 2023(2):88-92. https://doi.org/10.53986/ibjm.2023.0013.
 
 Covantsev S, Lebedinsky I, Slepukhova D, Kovaleva M, Mulaeva K. Beaver tail liver: an incidental but crucial anatomical variation in case of acute abdomen. Iberoam J Med. 2023(2):93-95. https://doi.org/10.53986/ibjm.2023.0008.
+
+To access to this issue please visit our web.
